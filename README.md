@@ -127,7 +127,7 @@ Created & Designed by:
 
 - 👨‍💻 **Nimeshka Mihiran**  
 - 🎨 Epic Bord Dev  
-- 🔗 Telegram: [@yourtelegramusername](https://t.me/yourtelegramusername)
+- 🔗 Telegram: [@NIMESHKAMIHIRAN](https://t.me/@kindofkingg)
 
 ---
 
